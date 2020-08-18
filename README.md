@@ -7,6 +7,4 @@ Over the years of evolution, our brains have been optimized to be able to quickl
 
 If you want to participate in this project or learn more about its details, please contact me.
 
-email : arman.nikkhah.79@gmail.com
-phone: +98 902 305 1379
 phone : +1 206 338 0226
